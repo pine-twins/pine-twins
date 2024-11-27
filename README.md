@@ -34,8 +34,4 @@
 
 🟢/💬 = I rarely use these two statuses, but if I do, you can come up to me and we can chat!
 
-
-![Visitor Count](https://profile-counter.glitch.me/{pine-twins}/count.svg) 
-
-
 **REMAINING TEXT: IRRELEVANT.**
