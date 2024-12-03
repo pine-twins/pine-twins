@@ -35,3 +35,5 @@
 🟢/💬 = I rarely use these two statuses, but if I do, you can come up to me and we can chat!
 
 **REMAINING TEXT: IRRELEVANT.**
+
+![image](https://i.postimg.cc/tJs565QW/IMG-6054.jpg)
