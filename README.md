@@ -4,7 +4,7 @@
 
 **Scanning Passage...**
 
-- Coru / Azira / Pol ;; She / He 🔮
+- Wil / Coru / Azira ;; She / He 🔮
 
 **Making this quick. Please just read my rentry or any of the linked socials instead...**
 
